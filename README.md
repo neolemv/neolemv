@@ -1,3 +1,3 @@
-![image](https://nukocities.neocities.org/nuko/uniq/cat485.gif)
-
-> _sometimes you gotta close a door to open a window._
+<p align="center">
+  <img src="https://media.tenor.com/3GGwIyjPHRoAAAAj/yin-yang.gif" />
+</p>
